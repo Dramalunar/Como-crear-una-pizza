@@ -16,7 +16,7 @@ preparacion
 4 añadimos capa de queso morazzella
 5 envolvemos el pollo con mozarella,pimiento bien hasta que quede cubierto
 6 por ultimo horneamos la pizza a 180° unos 10m 
-7 pa terminar comeremos pizza sabor ranchera sencillo
+7 pa terminar comeremos pizza sabor ranchera sencillo y rapido
 
 
 
