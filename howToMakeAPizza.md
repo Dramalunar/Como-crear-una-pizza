@@ -28,18 +28,20 @@ Edgar David Almeida Ortiz
    
 5. **Disfruta tu deliciosa pizza 🍕!**
 
+Jaiyelith Gonzalez
 
-
-
-
-
-
-
-
-
-
-
-
+Conseguir todos los ingredientes (harina, aceite, levadura, tomates, sal, queso, y toppings)
+Añadir en un recipiente 200 gr de harina, 100ml de agua, 10ml de aceite, 5 gr de levadura y una pizca de sal
+Amasar todos los ingredientes hasta tener una masa homogénea que no se pegue a los dedos
+Tapar la masa y dejar leudar por 2 horas en un lugar a oscuras en temperatura ambiente
+Amasar nuevamente hasta desgacificar la masa 
+Con un rodillo, estirar la masa hasta conseguir el grosor deseado
+Colocar la masa en el molde para pizza
+Poner a cocinar la salsa hasta que hierba y obtenga la consistencia deseada (añadir orégano para mejor gusto)
+Una vez la salsa se enfrié, se debe esparcir encima de la masa de la pizza
+Agrega queso y demás ingredientes de tu preferencia
+Lleva a la pizza armada a un horno precalentado anteriormente y hornea por 20 minutos a 150 °C
+Saca la pizza del horno y disfruta
 
 
 JENIFER CHAVEZ
